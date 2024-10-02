@@ -1,6 +1,6 @@
 # Major - Auto Claim Bot
 
-🔗 **Referral Link**: [Major](https://t.me/major/start?startapp=5914982564)
+🔗 **Referral Link**: [Major](https://t.me/major/start?startapp=2116273164-724886248)
 
 ## 📢 Telegram Group
 
